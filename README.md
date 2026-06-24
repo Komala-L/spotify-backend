@@ -253,6 +253,8 @@ During this project, I gained practical experience with:
 
 BCA Student | Aspiring Full Stack Developer
 
+🔗 [LinkedIn](https://linkedin.com/in/komala-l-b23245347/)
+
 ---
 
 ## ⭐ Support
